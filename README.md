@@ -11,3 +11,7 @@ irl oma . **6TEEN** . he , him ︵‿₊୨୧₊‿︵ c+h ✓ W2I (always offt
 𓂃 ꩜ . **BYI** : boi im a minor so don't be saying diddy blud things if ur grown !! i'm autistic so umm idk what to tell u
 
 𓂃 𐙚 . **DNI** : oumota (unless oomf) , people who like weird things like hazbin hotel YOU GUYS ARE UGLY , danganronpa tetro
+
+
+
+<a href="https://tamanotchi.world/28501c"><img src="https://tamanotchi.world/i/28501" alt="It's tamaNOTchi! Click to feed!"></a>
