@@ -5,9 +5,7 @@
 
 ༺｡° .ᘛ ▀▄▀▄▀▄ ᘚ. °｡༻
 
-irl oma , **6TEEN** , he . him
-  
-  c+h ✓ W2I (always offt)
+irl oma , **6TEEN** , he . him ︵‿₊୨୧₊‿︵ c+h ✓ W2I (always offt)
 
 
 𓂃 ꩜ . **BYI** : boi im a minor don't be saying diddy blud things if ur grown !! i use slurs (ones i can say).
