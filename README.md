@@ -15,4 +15,6 @@ irl oma . **6TEEN** . he , him ︵‿₊୨୧₊‿︵ c+h ✓ W2I (always offt
 
 
 <a href="https://tamanotchi.world/28501c"><img src="https://tamanotchi.world/i/28501" alt="It's tamaNOTchi! Click to feed!"></a>
+<img width="100" height="100" alt="photo_resized" src="https://github.com/user-attachments/assets/c9d84c02-3669-444c-8f7a-d9b802600fef" />
+
 <a href="https://info.flagcounter.com/pyz8"><img src="https://s01.flagcounter.com/count2/pyz8/bg_FFFFFF/txt_000000/border_CCCCCC/columns_2/maxflags_10/viewers_0/labels_0/pageviews_0/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
