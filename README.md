@@ -6,3 +6,7 @@
 ༺｡° .ᘛ ▀▄▀▄▀▄ ᘚ. °｡༻
 
 irl oma , **6TEEN** , he . him
+  c+h ✓ W2I (always offt)
+𓂃 ꩜ . **BYI** : boi im a minor don't be saying diddy blud things if ur grown !! i use slurs (ones i can say).
+
+𓂃 𐙚 . **DNI** : oumota (unless oomf) , people who like weird things like hazbin hotel YOU GUYS ARE UGLY , danganronpa tetro
