@@ -5,7 +5,7 @@
 
 ༺｡° .ᘛ ▀▄▀▄▀▄ ᘚ. °｡༻
 
-irl oma . **6TEEN** . he , him ENTJ 8w7 (854) sp/sx ₊ ୨୧ ₊ c+h ✓ W2I (always offt) <img width="40" height="40" alt="image-removebg-preview (7)" src="https://github.com/user-attachments/assets/cbd630e3-d31b-4d12-912c-78678aefb672" />
+irl oma . **6TEEN** . he , him . ENTJ 8w7 (854) sp/sx ₊ ୨୧ ₊ c+h ✓ W2I (always offt) <img width="40" height="40" alt="image-removebg-preview (7)" src="https://github.com/user-attachments/assets/cbd630e3-d31b-4d12-912c-78678aefb672" />
 
 
 𓂃 ꩜ . **BYI** : boi im a minor so don't be saying diddy blud things if ur grown !! i'm autistic so umm idk what to tell u
