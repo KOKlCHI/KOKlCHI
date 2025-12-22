@@ -1,4 +1,4 @@
-## " i never really lost the fight, but i never really won it . "
+## " i want you to wanna date me 0_0 "
  <img width="200" height="200" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/7bf5a25e-ac00-4511-a757-524cdad25ed4" />
 
 
