@@ -10,7 +10,7 @@ irl oma . **6TEEN** . he , him . ENTJ 8w7 (854) sp/sx ₊ ୨୧ ₊ c+h ✓ W2I
 
 𓂃 ꩜ . **BYI** : boi im a minor so don't be saying diddy blud things if ur grown !! i'm autistic so umm idk what to tell u
 
-𓂃 𐙚 . **DNI** : oumota (unless oomf) , people who like weird things like hazbin hotel YOU GUYS ARE UGLY , danganronpa tetro , doubles
+𓂃 𐙚 . **DNI** : oumota (unless oomf) , doubles , owm , zero day enjoyers (bffr)
 
 
 
