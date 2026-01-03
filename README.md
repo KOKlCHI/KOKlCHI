@@ -1,4 +1,4 @@
-## " i want you to wanna date me 0_0 "
+## " pretend there's a quote "
  <img width="200" height="200" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/7bf5a25e-ac00-4511-a757-524cdad25ed4" />
 
 
@@ -10,7 +10,7 @@ irl oma . **6TEEN** . he , him . ENTJ 8w7 (854) sp/sx ₊ ୨୧ ₊ c+h ✓ W2I
 
 𓂃 ꩜ . **BYI** : boi im a minor so don't be saying diddy blud things if ur grown !! i'm autistic so umm idk what to tell u . . . i'm not reading anyones nothing b4 interacting srry
 
-𓂃 𐙚 . **DNI** : doubles , owm 
+𓂃 𐙚 . **DNI** : 
 
 
 <a href="https://tamanotchi.world/28501c"><img src="https://tamanotchi.world/i/28501" alt="It's tamaNOTchi! Click to feed!"></a>
