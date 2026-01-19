@@ -2,8 +2,7 @@
 
 
 <img width="70" height="70" alt="download (2)_resized" src="https://github.com/user-attachments/assets/988141d5-e450-485e-b180-615c1a4f4561" />
-<img width="60" height="80" alt="where is my Donnie Darko_resized" src="https://github.com/user-attachments/assets/15954e17-2ecc-40a6-b37f-136558c5a7cd" />
-<a href="https://info.flagcounter.com/pyz8"><img src="https://s01.flagcounter.com/count2/pyz8/bg_FFFFFF/txt_000000/border_CCCCCC/columns_2/maxflags_10/viewers_0/labels_0/pageviews_0/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
+src="https://s01.flagcounter.com/count2/pyz8/bg_FFFFFF/txt_000000/border_CCCCCC/columns_2/maxflags_10/viewers_0/labels_0/pageviews_0/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
 
 
 
