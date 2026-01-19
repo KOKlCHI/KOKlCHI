@@ -2,15 +2,7 @@
  <img width="200" height="200" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/7bf5a25e-ac00-4511-a757-524cdad25ed4" />
 
 
-
-༺｡° .ᘛ ▀▄▀▄▀▄ ᘚ. °｡༻
-
-irl oma (& yonaga) . **6TEEN** . he , him . ENTJ 8w7 (854) sp/sx ₊ ୨୧ ₊ c+h ✓ W2I (always offt) <img width="40" height="40" alt="image-removebg-preview (7)" src="https://github.com/user-attachments/assets/cbd630e3-d31b-4d12-912c-78678aefb672" />
-
-
-𓂃 ꩜ . **BYI** : boi im a minor so don't be saying diddy blud things if ur grown !! i'm autistic so umm idk what to tell u . . . i'm not reading anyones nothing b4 interacting srry
-
-𓂃 ꩜ . **DNI** : kokichi doubles
+kokichi , 16 , c+h allowed yay ! But don't copy my ponies. gitty is a wip so sorri it's boring ;-;
 
 <a href="https://tamanotchi.world/28501c"><img src="https://tamanotchi.world/i/28501" alt="It's tamaNOTchi! Click to feed!"></a>
 <img width="35" height="35" alt="image-removebg-preview (4)" src="https://github.com/user-attachments/assets/320b565b-4d55-4e0b-a724-fb776f4ceec7" />
