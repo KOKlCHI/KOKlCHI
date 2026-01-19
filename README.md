@@ -1,5 +1,8 @@
 ## " 11:07 PM[🍀Nagito, Offtab w2i] dont mess with kokichi hes from that pony o block "
- <img width="200" height="200" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/7bf5a25e-ac00-4511-a757-524cdad25ed4" />
+![where is my Donnie Darko](https://github.com/user-attachments/assets/a1f65f99-aa48-4f62-b8e3-6352afc920ba)
+
+
+
 
 
 kokichi , 16 , c+h allowed yay ! But don't copy my ponies. gitty is a wip so sorri it's boring ;-;
