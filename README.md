@@ -15,4 +15,4 @@
 ‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎c+h enc *!* w2i , usually offt/afk *!*
 
 ╰⪼ $\color{#5d4a59}he‎‎ ,‎‎ him‎‎ .‎‎ ENTJ‎‎ 8w7$ <br>
-‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  [spotify](https://open.spotify.com/user/v0htizlya3x3c36w525guu9oj?si=648332f52b824f07) *︶꒦* . text
+‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  [spotify](https://open.spotify.com/user/v0htizlya3x3c36w525guu9oj?si=648332f52b824f07) *︶꒦* . [roblox](https://www.roblox.com/users/10147094208/profile)
