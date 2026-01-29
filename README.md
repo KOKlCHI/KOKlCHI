@@ -1,4 +1,4 @@
-## ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎  " killing myself for the perfect honeymoon . "
+## " killing myself for the perfect honeymoon . "
 
 </p>
 <p align="center">
