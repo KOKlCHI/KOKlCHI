@@ -1,4 +1,4 @@
-## " 11:07 PM[🍀Nagito, Offtab w2i] dont mess with kokichi hes from that pony o block "
+## " killing myself for the perfect honeymoon "
 
 
 ![866d4256](https://github.com/user-attachments/assets/b6ae7984-588e-4bc8-8cb6-b684a05beb27)
