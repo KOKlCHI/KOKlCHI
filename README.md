@@ -8,6 +8,7 @@ kokichi , c+h encouraged yay ! But don't copy my ponies. plz follow me. Ok. Bai.
 
 11:01 PM[quirked up white boy] god needs to give u a real blunt
 
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/6Sf8N1L01pe6jXCVpaSXj7?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <a href="https://tamanotchi.world/28501c"><img src="https://tamanotchi.world/i/28501" alt="It's tamaNOTchi! Click to feed!"></a>
 <img width="35" height="35" alt="image-removebg-preview (4)" src="https://github.com/user-attachments/assets/320b565b-4d55-4e0b-a724-fb776f4ceec7" />
