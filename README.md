@@ -15,5 +15,5 @@
 ‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎c+h enc *!* w2i , usually offt/afk *!*
 
 ⤷ $\color{#5d4a59}he‎‎ ,‎‎ him‎‎ .‎‎ ENTJ‎‎ 8w7$ <br>
-, c+h enc *!* . test
+‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ , text *!* . text
 [text](link)
