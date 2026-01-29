@@ -12,7 +12,8 @@
 
 [IRL](https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=fc2c72995cd741c3) kokichi . c+h enc *!* . test
 
-11:01 PM[quirked up white boy] god needs to give u a real blunt
+
+${\textsf{\color{#da7dd1}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#da7dd1}◟test}}$ <br>
 
 https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=b6315be208dc4688
 
