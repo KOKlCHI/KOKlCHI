@@ -12,6 +12,7 @@
 
 
 
-[IRL](https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=fc2c72995cd741c3) $\color{#5d4a59}kokichi$ <br> , c+h enc *!* . test
+!! [IRL](https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=fc2c72995cd741c3) $\color{#5d4a59}kokichi$ <br>
 
 $\color{#dba7e8}test$ <br>
+, c+h enc *!* . test
