@@ -12,7 +12,7 @@
 
 
 
-!!  $\color{#5d4a59} IRL kokichi$ <br>
+!!  $\color{#5d4a59} IRL‎ kokichi$ <br>
 
 $\color{#dba7e8}test$ <br>
 , c+h enc *!* . test
