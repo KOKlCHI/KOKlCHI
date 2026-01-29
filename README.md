@@ -1,7 +1,8 @@
 ## " 11:07 PM[🍀Nagito, Offtab w2i] dont mess with kokichi hes from that pony o block "
 
 
-<img width="500" height="500" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/7c561d80-d0c0-445e-a2f8-6d04d3a82e38" />
+<img width="309" height="140" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/02b82e06-8a90-4b0f-ab2a-f2ce9789cf59" />
+
 
 
 
