@@ -8,7 +8,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="309" height="140" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/02b82e06-8a90-4b0f-ab2a-f2ce9789cf59" />
 
-[test](https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=fc2c72995cd741c3)
+[IRL](https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=fc2c72995cd741c3) kokichi . c+h enc *!* . test
 
 11:01 PM[quirked up white boy] god needs to give u a real blunt
 
