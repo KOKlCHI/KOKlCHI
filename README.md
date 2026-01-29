@@ -4,7 +4,7 @@
 <img width="70" height="70" alt="download (2)_resized" src="https://github.com/user-attachments/assets/988141d5-e450-485e-b180-615c1a4f4561" />
 
 
-kokichi , c+h allowed yay ! But don't copy my ponies. plz follow me. Ok. Bai.
+kokichi , c+h encouraged yay ! But don't copy my ponies. plz follow me. Ok. Bai.
 
 11:01 PM[quirked up white boy] god needs to give u a real blunt
 
