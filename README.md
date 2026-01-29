@@ -6,7 +6,7 @@
 
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="309" height="140" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/02b82e06-8a90-4b0f-ab2a-f2ce9789cf59" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="309" height="140" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/02b82e06-8a90-4b0f-ab2a-f2ce9789cf59" />
 
 kokichi , c+h encouraged yay ! But don't copy my ponies. plz follow me. Ok. Bai.
 
