@@ -12,8 +12,8 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="309" height="140" alt="image-removebg-preview (30)" src="https://github.com/user-attachments/assets/02b82e06-8a90-4b0f-ab2a-f2ce9789cf59" />
 
 ⤷ $\color{#d69fc6}  ‎ IRL‎ kokichi.ᐟ$ <br>
-‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎c+h enc *!* . w2i , usually offt/afk *!*
+‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎c+h enc *!* w2i , usually offt/afk *!*
 
-$\color{#5d4a59}test$ <br>
+⤷ $\color{#5d4a59}he , him . INTJ$ <br>
 , c+h enc *!* . test
 [text](link)
