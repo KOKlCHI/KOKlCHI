@@ -13,7 +13,7 @@
 [IRL](https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=fc2c72995cd741c3) kokichi . c+h enc *!* . test
 
 
-${\textsg{\color{#da7dd1}test}}$ <br>
+${\textsa{\color{#da7dd1}test}}$ <br>
 
 https://open.spotify.com/track/6Sf8N1L01pe6jXCVpaSXj7?si=b6315be208dc4688
 
