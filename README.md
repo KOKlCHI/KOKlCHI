@@ -1,4 +1,3 @@
-</p>
 <p align="center">
 
 ## " killing myself for the perfect honeymoon . "
