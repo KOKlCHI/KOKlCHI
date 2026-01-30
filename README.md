@@ -17,4 +17,8 @@
 ╰⪼ $\color{#5d4a59}he‎‎ ,‎‎ him‎‎ .‎‎ ENTJ‎‎ 8w7$ <br>
 ‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  [guns.lol](https://guns.lol/kokichiouma) *︶꒦* . [prns page](https://en.pronouns.page/@KOKlCHI) *︶꒦* . [cake](https://cake.avris.it/pA5)  *︶꒦* . [strawp](https://kokichhi.straw.page/)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v0htizlya3x3c36w525guu9oj&cover_image=true&theme=natemoo-re&show_offline=false&background_color=493a4b&interchange=true&profanity=false&bar_color=d69fd1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="left">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=v0htizlya3x3c36w525guu9oj&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=d69fd1&bar_color_cover=true">
+  </a>
+</p>
