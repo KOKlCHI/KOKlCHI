@@ -17,7 +17,7 @@
 ╰⪼ $\color{#5d4a59}he‎‎ ,‎‎ him‎‎ .‎‎ ENTJ‎‎ 8w7$ <br>
 ‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  [guns.lol](https://guns.lol/kokichiouma) *︶꒦* . [prns page](https://en.pronouns.page/@KOKlCHI) *︶꒦* . [cake](https://cake.avris.it/pA5)  *︶꒦* . [strawp](https://kokichhi.straw.page/)
 
-if you can see this PLEASE stop copying my ponies i literally had to put this here because you blocked me but i promise you i can literally still see you pls js stop bro liek idek why ur doing that and making them ugly either way And also stop molesting my friend because she doesn't want u ok thx!
+if ur seeing this literally stop acting liek the victim just because i have a kokichi pony 1. ur literally lying about being a system which is so disrespectful to REAL systems and 2. god forbid i have a kokichi pony like omgg nooooo now im invalidating your pony (which you quite literally copied from me) AND STOP HARASSING MY BF HE DOESNT WANT U HE ONLY WANTS ME LALALALALALAL UR MAD 
 
 <p align="left">
   <a href="https://github.com/kittinan/spotify-github-profile">
