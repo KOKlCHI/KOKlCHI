@@ -15,7 +15,7 @@
 ‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎c+h enc *!* w2i , usually offt/afk *!*
 
 ╰⪼ $\color{#5d4a59}he‎‎ ,‎‎ him‎‎ .‎‎ ENTJ‎‎ 8w7$ <br>
-‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  [guns.lol](https://guns.lol/kokichiouma) *︶꒦* . [prns page](https://en.pronouns.page/@KOKlCHI) *︶꒦* . [cake](https://cake.avris.it/pA5)  *︶꒦* . [strawp](https://oumakokichii.straw.page/) *︶꒦* . [rentry](https://rentry.co/kokichhi)
+‎ ‎ ‎‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  [guns.lol](https://guns.lol/kokichiouma) *︶꒦* . [prns page](https://en.pronouns.page/@KOKlCHI) *︶꒦* . [cake](https://cake.avris.it/pA5)  *︶꒦* . [strawp](https://oumakokichii.straw.page/)
 
 <p align="left">
   <a href="https://github.com/kittinan/spotify-github-profile">
