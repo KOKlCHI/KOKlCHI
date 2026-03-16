@@ -4,11 +4,10 @@
 
 <p align="center">
 kokichi , he/him , 6teen , poc
-
 <p align="center">
  working on new layout :3c
-</br> 
- <a href="https://github.com/kittinan/spotify-github-profile">
+
+<p align="center"><a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=v0htizlya3x3c36w525guu9oj&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=d69fd1&bar_color_cover=true">
   </a>
 </p>
