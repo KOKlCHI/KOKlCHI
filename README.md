@@ -14,4 +14,4 @@ kokichi , he/him , 6teen , poc
 
 <p align="center">
 <img width="70" height="124" alt="Screenshot 2026-03-12 110517" src="https://github.com/user-attachments/assets/a383e42c-ab81-4c29-85f7-4b99f2cfb353" />
-</p>
+<img width="70" height="124" alt="Screenshot 2026-03-12 110517" src="https://github.com/user-attachments/assets/a5eba96f-38e5-4cdb-88af-2cbe6a6d7656" />
