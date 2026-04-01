@@ -11,3 +11,7 @@ kokichi , he/him , 6teen , poc
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=v0htizlya3x3c36w525guu9oj&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=d69fd1&bar_color_cover=true">
   </a>
 </p>
+
+<p align="center">
+<img width="70" height="124" alt="Screenshot 2026-03-12 110517" src="https://github.com/user-attachments/assets/a383e42c-ab81-4c29-85f7-4b99f2cfb353" />
+</p>
