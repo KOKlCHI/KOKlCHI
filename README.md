@@ -5,9 +5,11 @@
 <p align="center">
 he/him , 6teen , poc
 <p align="center">
- WORKING ON NEW EVERYTHING SRRY ):
- <p align="center">
+ rentry in links ok?
+<p align="center">
  inspo is awesome but do not copy pliss o_O
+ <p align="center">
+ also i'm not trying to be cringe but if you're going to ignore me for hours and then wanna act like we're best friends as soon as my oomfs come online and start kissing me repeatedly just don't because it's super irritating and weird so js go ahead n unadd me if u think this is about u because it most likely is.. thx!
  
 <p align="center"><a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=v0htizlya3x3c36w525guu9oj&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=d69fd1&bar_color_cover=true">
