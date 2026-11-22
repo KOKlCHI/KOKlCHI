@@ -36,6 +36,4 @@ NO dni, don't be a weirdoo
 [<img align='center' width="130" src="https://github.com/user-attachments/assets/78d04488-e226-4ddb-8d9d-06313d94a990" />](https://github.com/ghostly-sorrows)
 [<img align='center' width="130" src="https://github.com/user-attachments/assets/e66a03e1-8460-4046-9a9a-6f99c4a7bd8e" />](https://github.com/bastetngeb)
 
-
-
-
+i don't really care about copying on my other ponies but please don't copy my kokichi ponies or take inspo ;-; i've seen a couple people take things and i don't really like it cuz it took me years to come up with these combos and i know if you were in my place you wouldn't like it either ._.
